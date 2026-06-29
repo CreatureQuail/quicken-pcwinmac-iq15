@@ -1,4 +1,4 @@
-# 
+# Personalizado Quicken complementos para Mac OS | Turbo Quicken complementos para PC Windows. Con e-file del IRS y cumplimiento de políticas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
